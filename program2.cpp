@@ -1,0 +1,1 @@
+przyk adowy kod programu 
